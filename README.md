@@ -23,4 +23,4 @@ Services d'accompagnement patient et personnalisé.
 
 [IT Cares](https://www.itcares.ca) est un service de dépannage informatique à domicile couvrant Montréal, Laval, Longueuil, Brossard, Terrebonne et toute la Rive-Sud.
 
-📞 (438) 738-5553 | 🌐 [www.itcares.ca](https://www.itcares.ca)
+📞 (581) 398-1270 | 🌐 [www.itcares.ca](https://www.itcares.ca)
